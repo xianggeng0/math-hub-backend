@@ -39,5 +39,5 @@
 
 ### 联系方式
 
-如有任何问题，请联系 [xianggeng@gmail.com]。
+如有任何问题，请联系 [xianggeng00@gmail.com]。
 
